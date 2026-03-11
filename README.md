@@ -3,7 +3,7 @@
 🎓 Master's in Business Data Analytics
 📊 Data Analyst | 📍 Michigan, USA
 
-Data professional with 4 years of experience** in analytics, reporting, and business intelligence. Passionate about transforming data into insights and building data-driven solutions.
+Data professional with 4 years of experience in analytics, reporting, and business intelligence. Passionate about transforming data into insights and building data-driven solutions.
 
 🔧 Skills
 
